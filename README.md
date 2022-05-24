@@ -1,0 +1,2 @@
+# Ramky-one-odyssey-
+Ramky One Odyssey is developed by Ramky Estates, Located in Kokapet, Hyderabad. It is provides 2.5 &amp; 3,3.5 and 4,4.5 bhk luxury flats available for sale in Affordable prices.There are multiple facilities for residents at Ramky One Odyssey Kokapet which includes Gymnasium. Young families with children will love the Children's Play Area, close by aside from Swimming Pool. Sports lovers will just like the Aerobics Room. Enjoy access to Restaurants/ Cafeterias, and provisions in the venture. Other provisions include access to Banquet Hall. 
